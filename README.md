@@ -9,3 +9,4 @@ Un passager qui lui demanda pourquoi il avait fait cela, Charle repondit en sour
 Sinon ce serait une perte pour nous deux. J'espère seulement que mes chaussures correspondront à sa taille.
 Un sans abri trouva la paire et fut bien heureux d'être enfin bien chaussé.
 (Il s'avère qu'en fait Charle et Charles sont 2 personnalités qui cohabitent le même corps.)
+Le passager le regarda etonner et finit par se retourner et partir sans rien rajouter .
